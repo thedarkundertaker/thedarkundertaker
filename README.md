@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @thedarkundertaker
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... about graphic designing
-- 💞️ I’m looking to collaborate on ... anying rally
+- 💞️ I’m looking to collaborate on ... anying really
 - 📫 How to reach me ... Darkfire112907@gmail.com
 
 <!---
